@@ -1,16 +1,15 @@
-## Hi there 👋
+>adoring information
 
-<!--
-**adoringangel/adoringangel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+hello !! i use multiple names but i go by **Bee** primarily ,, to go along with that i use the label deminamefluid .. im also cassgender ,, demifloret ,, and queerplatonic .. i use many more labels which arent all listed ,, do be aware many labels are due to me being traitblur so please be polite ..
 
-Here are some ideas to get you started:
+>the affectionate one's pronouns
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i use they // them ,, it // its ,, and *most* neos (( bee does **not** go by harmful ,, poc ,, or intersex exclusive neos ))
+
+all neos listed in the links are my **preferred** neos ,, feel free to switch it up though !! just dont use any form of void // voids
+
+>the white-eyed angel's titles
+
+it whos bedazzled ,, drifter of endless pools ,, pure who once danced ,, pure who craves flesh ,, dream who exists in fog ,, abyss who sees all ,, it who is uncanny ,, this divine murder
+
+the one who watches ,, the final observer ,, the surreal one ,, the one with many teeth ,, the holy cannibal ,, the human with a godly soul ,, the trickster ,, the decaying ,, the sleeper
